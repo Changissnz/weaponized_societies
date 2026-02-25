@@ -22,7 +22,7 @@ help induce more gradients. And these gradients in behavior occur simultaneously
 as many memories as it produces them. 
 
 At a point in time, Ancient Athens believed themselves to still be the quintessential democracy, up to the 
-Peloponessian War, and then up until a crippling naval defeat that led to the Spartan faction to employ their 
+Peloponessian War, and then up until a crippling naval defeat that led to the Spartan faction employing their 
 naturally superior army to sack Athens. In the few years before the Peloponessian War, Athens suffered from a 
 terrible plague. If I recall correctly from my brief time in studying translated ancient Greek works, there were 
 also complaints against the oligarchy in the years leading up to the Peloponessian War. So the Ancient Greek 
