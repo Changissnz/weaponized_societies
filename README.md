@@ -11,7 +11,7 @@ and foreign form of governance so alien and unconstitutional to the United State
 learned about the word "demagogue" at around that time.  
 
 I wonder if those same people would care to explain more about the current state of the American government, 
-how it differed from ten years back, and if what they were saying ten years back was practically a flirtation 
+how it differs from ten years back, and if what they were saying ten years back was practically a flirtation 
 with political ideals and a jest to youth naivety on political norms. I can't seem to recall if Crassus, I mean 
 Jeff Bezos, owned the Washington Post ten years back. I actually subscribed to the Washington Post for a few 
 months back then. I'm kidding about Bezos being like Crassus. 
